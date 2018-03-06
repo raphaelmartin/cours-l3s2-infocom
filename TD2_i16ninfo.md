@@ -26,6 +26,7 @@ En une journée, 13 leads. Simplifié. Attentat plus important que "explosions".
 
 Autres éléments:
 - une demande intériorisé dans le cas de l'Irlande.
+- matrice journalistique : décontextualiser les evnmts irlandais pour les adapter au paysage FR. Tous les evnmts ne sont pas repris. Tri fait par l'interaction entre agences/médias => construction circulaire de l'information. Des journalistes essayant de récuper un scoop sans passer par l'AFP. Recalibrage par le bureau de Paris.
 
 
 
