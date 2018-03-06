@@ -16,4 +16,26 @@ Le flash afin de hiérarchiser l'info. Elle joue l'historien. A l'heure des RS l
 pq les journalistes n'utilisent pas Twitter? Car AFP journalistes pro dans toutes les zones du monde. Point de vue heterogène. Interview analyse diapomara images vidéos aussi à l'AFP. outil important pour les médias.
 Différents fils AFP en fonction des régions.
 
-exemple : années 90 au royaume unis entre Irlande-Royaume Unis. réunification irlande VS nationalistes.
+exemple : années 90 au royaume unis entre Irlande-Royaume Unis. réunification des 2 irlande VS nationalistes. 17 ans de conflit jusqu'en 1998.
+7/02/1991: attentat à la résidence du 1er ministre UK. 2 obus qui rate leur cible.
+
+Pyramide inversé : lead 5W > du plus important au moins important. Dépeche non flash, non urgent.
+En une journée, 13 leads. Simplifié. Attentat plus important que "explosions". pas du bureau AFP en irlande, traité depuis Londres. Comment les agenciers accordent de la valeur à l'info? Lien agencier - médias.
+1. décision collective
+2. nombre de dépeches, temps de publication...
+
+Autres éléments:
+- une demande intériorisé dans le cas de l'Irlande.
+
+
+
+
+
+
+
+
+
+
+
+
+
