@@ -30,6 +30,11 @@ Autres éléments:
 - mort au kilomètre.
 - réalité en soi, on ne dit pas que l'afp construit l'évènement. Processus de réduction qui mène à l'évunement est occulté.
 
+## synthèse
+
+routines de travail qui détermine le choix et la forme des sujets traités puis envoyés au médias. Depeche lead urgent doivent respecter le modèle de la pyramide inversée. Le format de la dépeche, son origine, l'importance que les autres sources lui attribuent.
+Vont entrainer une circularité de l'information puisque l'agence peut utiliser d'autres sources. Une demande qui formate l'offre elle meme circonstrite à la demande .Auto alimentation des médias par d'autres médias. Imitation du traitement de certains thèmes.
+
 
 
 
