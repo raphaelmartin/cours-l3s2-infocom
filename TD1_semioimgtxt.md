@@ -24,6 +24,7 @@ lecture active
 lire de façon à se repérer: scanner immédiatement un texte scientifique.
 
 2 lectures: intro conclusion titre PUIS qui est l'auteur, date, lieu, format, contextualisation, structure générale du texte.
-Surligner, document de citations pertinentes
+Surligner, document de citations pertinentes.
+Trouver liens entre les textes.
 
 
