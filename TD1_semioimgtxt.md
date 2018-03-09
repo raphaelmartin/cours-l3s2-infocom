@@ -1,1 +1,1 @@
-# Séance 1
+# Introduction à l'étude des signes. Regard, lecture, esprit critique : des bancs de l'université à une pratique quotidienne
