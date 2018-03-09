@@ -20,5 +20,6 @@ c'est en pratiquant.
 on est tjr des aprennants.
 principe de neutralité de l'analyse.
 
+lecture active
 
 
