@@ -21,5 +21,6 @@ on est tjr des aprennants.
 principe de neutralité de l'analyse.
 
 lecture active
+lire de façon à se repérer: scanner immédiatement un texte scientifique.
 
 
