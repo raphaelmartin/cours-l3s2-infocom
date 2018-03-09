@@ -18,8 +18,7 @@ C'est pas un argument qui vient de nous, mais à un auteur. Sourcer son propos.
 **3. la question de la progression**
 c'est en pratiquant.
 on est tjr des aprennants.
-
-
+principe de neutralité de l'analyse.
 
 
 
