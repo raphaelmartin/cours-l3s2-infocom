@@ -23,4 +23,7 @@ principe de neutralité de l'analyse.
 lecture active
 lire de façon à se repérer: scanner immédiatement un texte scientifique.
 
+2 lectures: intro conclusion titre PUIS qui est l'auteur, date, lieu, format, contextualisation, structure générale du texte.
+Surligner, document de citations pertinentes
+
 
