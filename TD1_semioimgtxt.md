@@ -15,6 +15,9 @@ Nous déconstruire pour la construire.
 **2. la question de l'honeteté**
 C'est pas un argument qui vient de nous, mais à un auteur. Sourcer son propos.
 
+**3. la question de la progression**
+c'est en pratiquant.
+
 
 
 
