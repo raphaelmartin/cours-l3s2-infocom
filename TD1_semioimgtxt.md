@@ -3,6 +3,8 @@
 
 ## l'esprit critique
 
+mise en relation. effet de confrontation.
+
 
 
 
