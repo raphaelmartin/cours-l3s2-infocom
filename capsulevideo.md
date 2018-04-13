@@ -12,7 +12,10 @@ mécanisme d'inversion des mythes par rapport à l'histoire vers la nature.
 Problématique : Peut-on échapper au mythe?
 
 Intro Qu'est-ce qu'un mythe
-1)
+1) le mythe comme langage volé
+2) la bourgeoisie comme société anonyme
+3) le mythe est une parole dépolitisé
+4) nécessités et limites de la mythologie
 
 I/
 
