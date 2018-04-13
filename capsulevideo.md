@@ -25,8 +25,3 @@ Non, car on la présente comme allant de soi
 
 4) nécessités et limites de la mythologie
 le mythologue pour éviter de se prendre au piège doit se retirer de la communauté des croyants.
-
-
-I/
-
-II/
