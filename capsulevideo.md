@@ -39,4 +39,3 @@ Def. mythe: double-sens dans la racine même du mot, à la fois légende (récit
 2. Construction pour tenir nos vérités. Donc maléable.
 3. Mythifier le mythe. La parole politique et poétique.
 4. Aujourd'hui vs l'homme unidimensionnel de MARCUSE.
-
