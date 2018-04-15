@@ -12,7 +12,7 @@ mécanisme d'inversion des mythes par rapport à l'histoire vers la nature.
 **Problématique : Peut-on échapper au mythe?**
 
 _Intro: Qu'est-ce qu'un mythe  
-1) le mythe comme langage volé
+1) le mythe comme langage volé  
 Non, car il vole la langue.  
 Quel est le propre du mythe? C'est de transformer un sens en forme. Autrement dit, le mythe est toujours un vol de langage. Je vole le nègre qui salue pour naturaliser à travers lui l'Empire.
 N'y a-t-il aucun sens qui puisse résister à cette capture dont la forme le menace? En fait, rien ne peut être à l'abri du mythe, le mythe peut développer son schème second à partir de n'importe quel sens, de la privation de sens elle-même.  
