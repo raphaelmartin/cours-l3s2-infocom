@@ -9,11 +9,11 @@ Les mythes aujourd'hui : société plus éclaté VS l'homme unidimensionnel de M
 signifiant / signifié / signe : B. applique le modèle des linguistes sur la société. postface théorique.
 mécanisme d'inversion des mythes par rapport à l'histoire vers la nature.
 
-Problématique : Peut-on échapper au mythe?
+**Problématique : Peut-on échapper au mythe?**
 
 Intro Qu'est-ce qu'un mythe
 1) le mythe comme langage volé
-Non car il vole la langue.
+Non, car il vole la langue.
 Quel est le propre du mythe? C'est de transformer un sens en forme. Autrement dit, le mythe est toujours un vol de langage. Je vole le nègre qui salue pour naturaliser à travers lui l'Empire.
 N'y a-t-il aucun sens qui puisse résister à cette capture dont la forme le menace? En fait, rien ne peut être à l'abri du mythe, le mythe peut développer son schème second à partir de n'importe quel sens, de la privation de sens elle-même.
 
@@ -25,3 +25,10 @@ Non, car on la présente comme allant de soi
 
 4) nécessités et limites de la mythologie
 le mythologue pour éviter de se prendre au piège doit se retirer de la communauté des croyants.
+
+---
+
+I/ Les mythes sont des formes, elles peuvent donc s'approprier tout contenu.
+Omniprésence : les 4 petites mythologies montrent des mythes de la vie quotidienne, banal : les pages astrologiques de ELLE comme l'abbé Pierre. Populaire, immanent dans la société.
+1) cf. LAMBERT: le mythe sert à quelque chose, utilité sociale. Les grecs ont-ils cru à leurs mythes? Oui et non. Les sociétés s'inventent des mythes pour que leurs histoires tiennent debout. Aspect social, tribu qui s'inventent des vérités. Proche de la croyance, de l'immaginaire collectif.
+2) Barthes: le naturel comme alibi
