@@ -28,7 +28,7 @@ le mythologue pour éviter de se prendre au piège doit se retirer de la communa
 
 ---
 
-I/ Les mythes sont des formes, elles peuvent donc s'approprier tout contenu.
-Omniprésence : les 4 petites mythologies montrent des mythes de la vie quotidienne, banal : les pages astrologiques de ELLE comme l'abbé Pierre. Populaire, immanent dans la société.
-1) cf. LAMBERT: le mythe sert à quelque chose, utilité sociale. Les grecs ont-ils cru à leurs mythes? Oui et non. Les sociétés s'inventent des mythes pour que leurs histoires tiennent debout. Aspect social, tribu qui s'inventent des vérités. Proche de la croyance, de l'immaginaire collectif.
-2) Barthes: le naturel comme alibi
+**I/ Les mythes sont des formes, elles peuvent donc s'approprier tout contenu.**
+1. Omniprésence : les 4 petites mythologies montrent des mythes de la vie quotidienne, banal : les pages astrologiques de ELLE comme l'abbé Pierre. Populaire, immanent dans la société.
+2. cf. LAMBERT: le mythe sert à quelque chose, utilité sociale. Les grecs ont-ils cru à leurs mythes? Oui et non. Les sociétés s'inventent des mythes pour que leurs histoires tiennent debout. Aspect social, tribu qui s'inventent des vérités. Proche de la croyance, de l'immaginaire collectif.
+3. Barthes: le naturel comme alibi
