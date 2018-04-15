@@ -16,7 +16,7 @@ _Intro: Qu'est-ce qu'un mythe
 Non, car il vole la langue.  
 Quel est le propre du mythe? C'est de transformer un sens en forme. Autrement dit, le mythe est toujours un vol de langage. Je vole le nègre qui salue pour naturaliser à travers lui l'Empire.
 N'y a-t-il aucun sens qui puisse résister à cette capture dont la forme le menace? En fait, rien ne peut être à l'abri du mythe, le mythe peut développer son schème second à partir de n'importe quel sens, de la privation de sens elle-même.  
-2) la bourgeoisie comme société anonyme
+2) la bourgeoisie comme société anonyme  
 Non car c'est le code de la bourgeoisie, la classe dominante  
 3) le mythe est une parole dépolitisé  
 Non, car on la présente comme allant de soi  
