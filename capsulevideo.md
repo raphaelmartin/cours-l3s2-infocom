@@ -26,6 +26,7 @@ le mythologue pour éviter de se prendre au piège doit se retirer de la communa
 ---
 
 Def. mythe: double-sens dans la racine même du mot, à la fois légende (récit symb.) & mensonge (mystification). LAMBERT: "le mythe se réclame à la fois de l'histoire et de la fiction".
+
 **I/ Non. Les mythes sont des formes, elles peuvent donc être approprié à tout contenu.**
 1. Omniprésence : les 4 petites mythologies montrent des mythes de la vie quotidienne, banal : les pages astrologiques de ELLE comme l'abbé Pierre. Populaire, immanent dans la société.
 2. cf. LAMBERT: le mythe sert à quelque chose, utilité sociale. Les grecs ont-ils cru à leurs mythes? Oui et non. Les sociétés s'inventent des mythes pour que leurs histoires tiennent debout. Aspect social, tribu qui s'inventent des vérités. Proche de la croyance, de l'imaginaire collectif.
