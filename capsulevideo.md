@@ -37,5 +37,7 @@ Def. mythe: double-sens dans la racine même du mot, à la fois légende (récit
 **II/  Oui. Limites**
 1. Le mythe est circonscrit dans le temps et l'espace. Il doit s'adapter aux gouts de l'époque
 2. Sincérité oublié face aux mythes. On se ment avant on savait leur double nature légende symbolique/déformation historique. Lien avec publicité - astrologie.
-2. Mythifier le mythe. La parole politique&poétique.
-3. Aujourd'hui vs l'homme unidimensionnel de MARCUSE.
+3. Mythifier le mythe. La parole politique&poétique.
+
+**Conclusion**
+Aujourd'hui vs l'homme unidimensionnel de MARCUSE.
