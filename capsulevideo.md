@@ -46,5 +46,7 @@ Dans _Roland Barthes 1915-1980_, Louis-Jean Calvet éclaire les coulisses de la 
 
 > N'y a-t-il aucun sens qui puisse résister à cette capture dont la forme le menace? En fait, rien ne peut être à l'abri du mythe, le mythe peut développer son schème second à partir de n'importe quel sens, de la privation de sens elle-même.
 
+Test.
+
 
 
