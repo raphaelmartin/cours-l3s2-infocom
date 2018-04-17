@@ -11,7 +11,7 @@ mécanisme d'inversion des mythes par rapport à l'histoire vers la nature.
 
 **Problématique : Peut-on échapper au mythe?**
 
-_Intro: Qu'est-ce qu'un mythe  
+_Intro: Qu'est-ce qu'un mythe. Production VS Réception non interrogée dans la postface. L'interroger. 
 1) le mythe comme langage volé  
 Non, car il vole la langue.  
 Quel est le propre du mythe? C'est de transformer un sens en forme. Autrement dit, le mythe est toujours un vol de langage. Je vole le nègre qui salue pour naturaliser à travers lui l'Empire.
@@ -23,7 +23,7 @@ Non, car on la présente comme allant de soi
 4) nécessités et limites de la mythologie  
 le mythologue pour éviter de se prendre au piège doit se retirer de la communauté des croyants._
 
----
+___
 
 Def. mythe: double-sens dans la racine même du mot, à la fois légende (récit symb.) & mensonge (mystification). LAMBERT: "le mythe se réclame à la fois de l'histoire et de la fiction".
 
@@ -39,3 +39,10 @@ Def. mythe: double-sens dans la racine même du mot, à la fois légende (récit
 
 **Conclusion**  
 Aujourd'hui vs l'homme unidimensionnel de MARCUSE.
+
+___
+
+INTRO
+Dans _Roland Barthes 1915-1980_, Louis-Jean Calvet éclaire les coulisses de la composition de l'oeuvre des _Mythologies_. Comme chaque mythologie a été écrite indépendemment, il incombe à Roland Barthes de trouver le fil rouge 
+
+
