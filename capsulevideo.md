@@ -43,6 +43,6 @@ Aujourd'hui vs l'homme unidimensionnel de MARCUSE.
 ___
 
 INTRO
-Dans _Roland Barthes 1915-1980_, Louis-Jean Calvet éclaire les coulisses de la composition de l'oeuvre des _Mythologies_. Comme chaque mythologie a été écrite indépendemment, il incombe à Roland Barthes de trouver le fil rouge 
+Dans _Roland Barthes 1915-1980_, Louis-Jean Calvet éclaire les coulisses de la composition de l'oeuvre des _Mythologies_. Comme chaque mythologie a d'abord été écrite puis publiée indépendemment, il incombe à Roland Barthes de trouver le fil rouge qui justifierais de réunir ces 54 histoires en un ouvrage. La postface des Mythologies, "Le mythe, aujourd'hui", est le résultat de cette reflexion. Une cinquantaine de pages très théorique où les outils de la sémiologie sont mobilisés pour décrire le mythe selon Barthes. Pourtant, 
 
 
