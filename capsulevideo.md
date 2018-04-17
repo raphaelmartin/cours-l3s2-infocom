@@ -15,7 +15,6 @@ _Intro: Qu'est-ce qu'un mythe. Production VS Réception non interrogée dans la 
 1) le mythe comme langage volé  
 Non, car il vole la langue.  
 Quel est le propre du mythe? C'est de transformer un sens en forme. Autrement dit, le mythe est toujours un vol de langage. Je vole le nègre qui salue pour naturaliser à travers lui l'Empire.
-N'y a-t-il aucun sens qui puisse résister à cette capture dont la forme le menace? En fait, rien ne peut être à l'abri du mythe, le mythe peut développer son schème second à partir de n'importe quel sens, de la privation de sens elle-même.  
 2) la bourgeoisie comme société anonyme  
 Non car c'est le code de la bourgeoisie, la classe dominante  
 3) le mythe est une parole dépolitisé  
@@ -44,5 +43,8 @@ ___
 
 INTRO
 Dans _Roland Barthes 1915-1980_, Louis-Jean Calvet éclaire les coulisses de la composition de l'oeuvre des _Mythologies_. Comme chaque mythologie a d'abord été écrite puis publiée indépendemment, il incombe à Roland Barthes de trouver le fil rouge qui justifierais de réunir ces 54 histoires en un ouvrage. La postface des _Mythologies_, "Le mythe, aujourd'hui", est le résultat de cette reflexion. Une cinquantaine de pages très théoriques où les outils de la sémiologie sont mobilisés pour définir le mythe selon Barthes. Or, si la (dé)construction du mythe est largement abordée du point de vue de la production, Roland Barthes en dit très peu de sa consommation, sa réception. Les autres textes du corpus qu'il s'agit d'étudier apportent plus d'éléments de réponses quant à cette dimension du mythe. Il s'agira alors ici de répondre à la problématique : Peut-on échapper au mythe? En somme, le mécanisme central du mythe est de "faire passer comme naturel ce qui est en fait profondément culturel", mais cette confusion est-elle présente chez les individus? Après examen des caractéristiques du mythe et de son pouvoir, nous en dessinerons certaines limites.
+
+> N'y a-t-il aucun sens qui puisse résister à cette capture dont la forme le menace? En fait, rien ne peut être à l'abri du mythe, le mythe peut développer son schème second à partir de n'importe quel sens, de la privation de sens elle-même.
+
 
 
