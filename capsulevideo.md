@@ -28,7 +28,7 @@ ___
 1. Omniprésence : les 4 petites mythologies montrent des mythes de la vie quotidienne, banal : les pages astrologiques de ELLE comme l'abbé Pierre. Populaire, immanent dans la société.  
 2. cf. LAMBERT: le mythe sert à quelque chose, utilité sociale. Les grecs ont-ils cru à leurs mythes? Oui et non. Les sociétés s'inventent des mythes pour que leurs histoires tiennent debout. Aspect social, tribu qui s'inventent des vérités. Proche de la croyance, de l'imaginaire collectif.  
 3. Barthes: le naturel comme alibi. ce-qui-va-de-soi. Idéologie bourgeoise - parole dépolitisée. A qui profite que l'on croie? Manipulation, endoctrinement.  
-4. Sincérité oublié face aux mythes. On se ment avant on savait leur double nature légende symbolique/déformation historique. Def. mythe: double-sens dans la racine même du mot, racine grecque à la fois légende (récit symb.) & mensonge (mystification). LAMBERT: "le mythe se réclame à la fois de l'histoire et de la fiction". Lien avec publicité - astrologie.
+4. Inextricable double matière du mythe. Comment isoler? Def. mythe: double-sens dans la racine même du mot, racine grecque à la fois légende (récit symb.) & mensonge (mystification). LAMBERT: "le mythe se réclame à la fois de l'histoire et de la fiction". Lien avec publicité - astrologie.
 
 **II/  Oui. Limites**
 1. Le mythe est circonscrit dans le temps et l'espace. Il doit s'adapter aux gouts de l'époque  
