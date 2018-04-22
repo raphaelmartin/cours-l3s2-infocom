@@ -24,16 +24,16 @@ le mythologue pour éviter de se prendre au piège doit se retirer de la communa
 
 ___
 
-**I/ Non. Les mythes sont des formes, elles peuvent donc être approprié à tout contenu.**
-1. Omniprésence : les 4 petites mythologies montrent des mythes de la vie quotidienne, banal : les pages astrologiques de ELLE comme l'abbé Pierre. Populaire, immanent dans la société.
-2. cf. LAMBERT: le mythe sert à quelque chose, utilité sociale. Les grecs ont-ils cru à leurs mythes? Oui et non. Les sociétés s'inventent des mythes pour que leurs histoires tiennent debout. Aspect social, tribu qui s'inventent des vérités. Proche de la croyance, de l'imaginaire collectif.
-3. Barthes: le naturel comme alibi. ce-qui-va-de-soi. Idéologie bourgeoise - parole dépolitisée. A qui profite que l'on croie? Manipulation, endoctrinement.
+**I/ Non. Les mythes sont des formes, elles peuvent donc être approprié à tout contenu.**  
+1. Omniprésence : les 4 petites mythologies montrent des mythes de la vie quotidienne, banal : les pages astrologiques de ELLE comme l'abbé Pierre. Populaire, immanent dans la société.  
+2. cf. LAMBERT: le mythe sert à quelque chose, utilité sociale. Les grecs ont-ils cru à leurs mythes? Oui et non. Les sociétés s'inventent des mythes pour que leurs histoires tiennent debout. Aspect social, tribu qui s'inventent des vérités. Proche de la croyance, de l'imaginaire collectif.  
+3. Barthes: le naturel comme alibi. ce-qui-va-de-soi. Idéologie bourgeoise - parole dépolitisée. A qui profite que l'on croie? Manipulation, endoctrinement.  
 4. Sincérité oublié face aux mythes. On se ment avant on savait leur double nature légende symbolique/déformation historique. Def. mythe: double-sens dans la racine même du mot, racine grecque à la fois légende (récit symb.) & mensonge (mystification). LAMBERT: "le mythe se réclame à la fois de l'histoire et de la fiction". Lien avec publicité - astrologie.
 
 **II/  Oui. Limites**
-1. Le mythe est circonscrit dans le temps et l'espace. Il doit s'adapter aux gouts de l'époque
-2. Mythifier le mythe. La parole politique&poétique.
-3. Aujourd'hui vs l'homme unidimensionnel de MARCUSE.
+1. Le mythe est circonscrit dans le temps et l'espace. Il doit s'adapter aux gouts de l'époque  
+2. Mythifier le mythe. La parole politique&poétique.  
+3. Aujourd'hui vs l'homme unidimensionnel de MARCUSE.  
 **Conclusion**  
 ___
 
@@ -48,6 +48,6 @@ Dans cette configuration, difficile d'échapper au mythe, surtout que sa nature 
 
 le naturel est une légalité -lambert. "le naturel n'est nullement un attribut de la Nature physique ; c'est un alibi dont se pare une majorité sociale : le naturel est une légalité".
 ce-qui-va-de-soi: "Barthes dénonçait la distorsion idéologique, la tentative de faire passer comme naturel ce qui est fait profondément culturel". Le naturel dont la presse nomme sans cesse une réalité qui n'est pas moins historique.
-**La bourgeoisie comme société anonyme:** Notre société est le champ privilégié des significations mythiques / Il y a une culture bourgeoise de pure consommation. La FR entière baigne dans cette idéologie : notre presse, notre cinéma, notre littérature, nos cérémoniaux, notre Justice, nos conversations, le mariage, la cuisine, le vêtement, tout, dans notre vie quotidienne, est tributaire de la représentation que la bourgeoisie se fait et nous fait des rapports de l'homme et du monde. Ces formes jouissent d'une position intérmédiaire : n'étant ni directement politique, ni directement idéologiques, elle vivent paisiblement /  Passage du réel à l'idéologique - passage d'une anti-physis à une pseudo-physis. / Le mythe a pour charge de fonder une intention historique en nature, une contingence en éternité / Si notre société est le champ privilégié des significations mythiques, c'est parce que le mythe est l'instrument le mieux approprié au renversement idéologique qui la définit: le mythe opère le renversement de l'anti-physis en pseudo-physis / Le mythe est constitué par la déperdition de la qualité historique des choses : les choses perdent en lui le souvenir de leur fabrication.
+**La bourgeoisie comme société anonyme:** Notre société est le champ privilégié des significations mythiques / Il y a une culture bourgeoise de pure consommation. La FR entière baigne dans cette idéologie : notre presse, notre cinéma, notre littérature, nos cérémoniaux, notre Justice, nos conversations, le mariage, la cuisine, le vêtement, tout, dans notre vie quotidienne, est tributaire de la représentation que la bourgeoisie se fait et nous fait des rapports de l'homme et du monde. Ces formes jouissent d'une position intermédiaire : n'étant ni directement politiques, ni directement idéologiques, elle vivent paisiblement /  Passage du réel à l'idéologique - passage d'une anti-physis à une pseudo-physis. / Le mythe a pour charge de fonder une intention historique en nature, une contingence en éternité / Si notre société est le champ privilégié des significations mythiques, c'est parce que le mythe est l'instrument le mieux approprié au renversement idéologique qui la définit: le mythe opère le renversement de l'anti-physis en pseudo-physis / Le mythe est constitué par la déperdition de la qualité historique des choses : les choses perdent en lui le souvenir de leur fabrication.
 
 
