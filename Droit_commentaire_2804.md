@@ -15,6 +15,7 @@ _Pblématique: Comment l'affaire Ebdo réouvre le débat sur le contrôle de la 
 Ebdo n°6 (16/02)  
 Ebdo n°5 (09/02)  
 2 plaintes: une jeune femme de 31a ancienne salariée de la Fondation Hulot dépose plainte le 27 mai 2016 / Plainte déposée par Pascale Mitterand en juillet 2008. Hulot entendu 1mois après par les gendarmes à Saint-Malo.  
+"Fallait-il, dès lors, s'interdire tout récit et choisir de taire un épisode occulté de la vie de l'une des personnalités préférées des Français, [...] devenue il y a dix mois un des principaux membres du gouvernement? Cette enquête est notre réponse."
 "La justice est passée." Ce qui est inexact: les faits étant prescrits, il y a eu une "décision de classement", précise l'avocat de la plaignante."  
 Que dit la justice sur ce dossier? Hulot s'appuie sur un courrier d'octobre 2008 du procureur de la république de S-M, Alexis Bouroz, soulignant que les faits dénoncés "n'apparaissaient pas établis". L'actuelle procureure de la République de S-M, Christine Le Crom, a, elle, confirmé le dépôt d'une plainte pour un "fait de viol" contre Hulot en 2008 dans un communiqué publié la veille de la sortie d'Ebdo, le 8 février. Elle précise que les faits se sont déroulés entre le 9 et le 11 juin 1997 et que "les deux protagonistes avaient une version contradictoire quant au consentement à la relation sexuelle". Confirme également le classement sans suite de l'affaire pour cause de prescription (dix ans pour un viol à l'époque).  
 "journal qui veut faire le buzz"  
