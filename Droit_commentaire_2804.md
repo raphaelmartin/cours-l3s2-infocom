@@ -6,4 +6,6 @@ _Pblématique: Comment l'affaire Ebdo réouvre le débat sur le contrôle de la 
 - procès de Hulot en diffamation
 - caractère de la prescription = on n'en parle plus? Intérêt d'Ebdo
 
-**II/** Comment "l'affaire Ebdo" réouvre le débat sur le contrôle de cette déontologie  
+**II/** Comment "l'affaire Ebdo" réouvre le débat sur le contrôle de cette déontologie 
+- autorégulation des journalistes
+- organisme: proposition Mélenchon, idées retoquées...
