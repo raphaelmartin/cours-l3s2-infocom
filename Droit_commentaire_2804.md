@@ -9,3 +9,9 @@ _Pblématique: Comment l'affaire Ebdo réouvre le débat sur le contrôle de la 
 **II/** Comment "l'affaire Ebdo" réouvre le débat sur le contrôle de cette déontologie 
 - autorégulation des journalistes
 - organisme: proposition Mélenchon, idées retoquées...
+
+---
+
+"journal qui veut faire le buzz"
+volonté de scoop médiatique, faire un coup? "dans le cas de notre enquete, nous avions un choix journalistique à faire: garder cette information au chaud ou la publier. Nous avons choisi la seconde option".
+Ce n'est pas un article de fond: découverte d'une plainte pour viol déposée contre lui, et témoignage de Pascale Miterrand.
