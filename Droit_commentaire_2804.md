@@ -41,6 +41,4 @@ Le 20 mars dernier, la publication Ebdo annonçait déposer le bilan, faute de t
 L'extrait que nous allons étudier ici est un article de presse en ligne du pureplayer Huffingtonpost.fr publié le 12 février dernier. Il revient sur la vie judiciaire de l'affaire et la polémique qu'elle a engendré. La notion de déontologie est abordée et notamment l'absence de son contrôle en France, en raison de l'inexistence "d'organe de contrôle de la déontologie journalistique". "Fallait-il publier?" interpelle l'incipit, comme une forme d'appel à l'introspection de chaque journaliste. Notre problématique se demandera "_Comment "l'affaire Ebdo" réouvre le débat sur le contrôle de la déontologie journalistique?_" avec une première partie consacrée au passage en revue des griefs contre l'article et sa déontologie. Puis, nous verrons en seconde partie le type de contrôle envisagé pour la faire appliquer.
 
 **I/ Pourquoi l'article d'Ebdo interroge quant à sa conformité à la déontologie journalistique?**  
-test.
-
 **II/ Quel contrôle exercer pour la faire appliquer?**  
