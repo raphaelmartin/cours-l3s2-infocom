@@ -28,3 +28,6 @@ Ce n'est pas un article de fond?: découverte d'une plainte pour viol déposée 
 "nous sommes au coeur d'une question qui traverse la société."
 ---
 
+"Plus grave, l’affaire Hulot a fait fuir un gros investisseur individuel qui devait mettre de l’argent dans le journal. Son retrait a provoqué l’annulation de l’augmentation de capital de 2 millions d’euros. En cascade, les crédits bancaires de 4 millions d’euros sur lesquels les fondateurs du journal comptaient aussi n’ont pas été débloqués."
+
+Le 20 mars dernier, la publication Ebdo annonçait déposer le bilan, faute de trésorerie. Les détails seront donnés par leurs confrères le lendemain. On apprend ainsi qu'un "gros investisseur individuel", ami de Nicolas Hulot, a fui suite à l'affaire Hulot. Son retrait a provoqué l'annulation de 2 millions d'euros de capital. En cascade, les crédit bancaires de 4 millions d'euros n'ont pas été débloqués. Retrospectivement, la courte destinée du journal est à rapprocher de cette affaire. Et même si, comme l'un de ses co-fondateurs le plaide, ce n'est que "8 pages sur 1100" parmis l'ensemble des 11 numéros parus. L'affaire dévoilée par Ebdo s'est ainsi rapidement retournée contre lui dans l'opinion ou le débat médiatique.L'affaire Hulot, devenue par sa publication "l'affaire Ebdo", s'est centré dans l'opinion, le débat médiatique sur 
