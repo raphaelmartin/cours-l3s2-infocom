@@ -27,9 +27,9 @@ volonté de scoop médiatique, faire un coup? "dans le cas de notre enquete, nou
 Ce n'est pas un article de fond?: découverte d'une plainte pour viol déposée contre lui, et témoignage de Pascale Miterrand.  
 "nous sommes au coeur d'une question qui traverse la société."
 
----
-
 "Plus grave, l’affaire Hulot a fait fuir un gros investisseur individuel qui devait mettre de l’argent dans le journal. Son retrait a provoqué l’annulation de l’augmentation de capital de 2 millions d’euros. En cascade, les crédits bancaires de 4 millions d’euros sur lesquels les fondateurs du journal comptaient aussi n’ont pas été débloqués."
+
+---
 
 Le 20 mars dernier, la publication Ebdo annonçait déposer le bilan, faute de trésorerie. Les détails seront apportés par leurs confrères le lendemain. On apprend ainsi qu'un "gros investisseur individuel", ami de Nicolas Hulot, a fui suite à la publication de "l'affaire Hulot". Son retrait a "provoqué l'annulation de 2 millions d'euros de capital. En cascade, les crédits bancaires de 4 millions d'euros n'ont pas été débloqués". Retrospectivement, la courte destinée du journal est ainsi à rapprocher de cet épisode paru dans le n°5. Et même si, — comme l'un de ses co-fondateurs le plaide —, ce n'est que "8 pages sur 1100" parmis l'ensemble des 11 numéros parus, l'affaire dévoilée par Ebdo s'est rapidement retournée contre lui au sein du débat médiatique. L'affaire Hulot, devenue par sa publication "l'affaire Ebdo", s'est centrée sur le bien fondé à publier cette affaire et à l'intérêt du journal à la sortir.
 L'extrait que nous allons étudier ici est un article de presse en ligne du pureplayer Huffingtonpost.fr publié le 12 février dernier. Il revient sur la vie judiciaire de l'affaire et la polémique qu'elle a engendré. La notion de déontologie est abordée et notamment l'absence de son contrôle en France, en raison de l'inexistence "d'organe de contrôle de la déontologie journalistique".
