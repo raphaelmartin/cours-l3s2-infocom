@@ -26,6 +26,7 @@ Que dit la justice sur ce dossier? Hulot s'appuie sur un courrier d'octobre 2008
 volonté de scoop médiatique, faire un coup? "dans le cas de notre enquete, nous avions un choix journalistique à faire: garder cette information au chaud ou la publier. Nous avons choisi la seconde option".  
 Ce n'est pas un article de fond?: découverte d'une plainte pour viol déposée contre lui, et témoignage de Pascale Miterrand.  
 "nous sommes au coeur d'une question qui traverse la société."
+
 ---
 
 "Plus grave, l’affaire Hulot a fait fuir un gros investisseur individuel qui devait mettre de l’argent dans le journal. Son retrait a provoqué l’annulation de l’augmentation de capital de 2 millions d’euros. En cascade, les crédits bancaires de 4 millions d’euros sur lesquels les fondateurs du journal comptaient aussi n’ont pas été débloqués."
