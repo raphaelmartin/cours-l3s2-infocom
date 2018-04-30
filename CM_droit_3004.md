@@ -36,4 +36,9 @@ Le CSA a donné son agrément à SFR pour Groupnews Nextradio TV.
 Projet de loi contre les fake news.
 Autosaisine du CSA: High et fines herbes. Directive SMA
 TF1 et Free accord de distribution
-Le CSA a publié un rapport sur la dernière campagne, propositions: réduire l'égalité stricte des temps de paroles 1 semaine, réduire de 24h le couvre feu médiatique pre-élections.
+Le CSA a publié un rapport sur la dernière campagne, propositions: réduire l'égalité stricte des temps de paroles 1 semaine, réduire de 24h le couvre feu médiatique pre-élections, moderniser les règles du temps de parole.
+
+régulation / réglementation / déontologie
+les fondements juridiques d'une règle
+principes/instance.
+Ne pas écrire "stipuler", sauf contrat.
