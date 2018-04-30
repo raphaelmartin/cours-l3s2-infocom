@@ -13,7 +13,6 @@ _Pblématique: Comment "l'affaire Ebdo" réouvre le débat sur le contrôle de l
 
 ---
 
-Respect des personnes : vie privée, respect de l'honneur, présomption d'innocence.
 application de la déon: absence d'organisme collectif d’autorégulation de la profession journalistique.
 
 Ebdo n°6 (16/02)  
@@ -41,4 +40,11 @@ Le 20 mars dernier, la publication Ebdo annonçait déposer le bilan, faute de t
 L'extrait que nous allons étudier ici est un article de presse en ligne du pureplayer Huffingtonpost.fr publié le 12 février dernier. Il revient sur la vie judiciaire de l'affaire et la polémique qu'elle a engendré. La notion de déontologie est abordée et notamment l'absence de son contrôle en France, en raison de l'inexistence "d'organe de contrôle de la déontologie journalistique". "Fallait-il publier?" interpelle l'incipit, comme une forme d'appel à l'introspection de chaque journaliste. Notre problématique se demandera "_Comment "l'affaire Ebdo" réouvre le débat sur le contrôle de la déontologie journalistique?_" avec une première partie consacrée au passage en revue des griefs contre l'article et sa déontologie. Puis, nous verrons en seconde partie le type de contrôle envisagé pour la faire appliquer.
 
 **I/ Pourquoi l'article d'Ebdo interroge quant à sa conformité à la déontologie journalistique?**  
+
+Respect des personnes : vie privée, respect de l'honneur, présomption d'innocence.
+- Charte d'éthique professionnelle des journalistes (SNJ): "un journaliste respecte la dignité des personnes et la présomption d'innocence" ; "tient l'intention de nuire pour les plus graves dérives pro" ; refuse et combat toute confusion entre journalisme et communication ; "ne confond pas son rôle avec celui du policier ou du juge"
+- Déclaration de Bordeaux: "le journaliste considérera comme faute pro graves: la calomnie, la médisance, la diffamation, les accusations sans fondement" ; 
+- Charte de Munich: "s'obliger à respecter la vie privée des personnes" ; "s'interdire la calomnie, la diffamation et les accusations sans fondement".
+- Dispositions pénales. Code pénal, articles 226, 321, 432, 434: Section 1 de l'atteinte à la vie privée. 1 an de prison et 45k euros d'amende.
+
 **II/ Quel contrôle exercer pour la faire appliquer?**  
