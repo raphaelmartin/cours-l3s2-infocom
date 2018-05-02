@@ -47,3 +47,5 @@ Ne pas écrire "stipuler", sauf contrat.
 article 24bis: réprime la contestation de la shoah.
 Exemple de condamnation: Dieudonné, JM. Le Pen. Fait de minorer.
 Loi du 27/01/2017. 24bis 2ème alinéa étendre le négationnisme au crime de génocide, contre l'humanité... dès lors que ces crimes ont fait l'objet d'une juridiction. La négation du génocide arménien ne rentre donc pas dans cette condamnation.
+Affaire Orelsan
+provocation à la haine homophobe.
