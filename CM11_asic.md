@@ -30,3 +30,8 @@ Fin du 18ème en Allemagne ou Angleterre, la vie sociale se politise. Montée de
 "ça fait salon mondain mais bon"
 
 Habermas jusqu'à la motiié du 19ème, voit la montée de cette espace public. Ensuite il remarque qu'il décline à cause des nouvelles formes médiatiques, commerciales. La domination du divertissement, l'avènement de la TV, publicité (au sens réclame commerciale). Va même jusqu'à dire que vers 1950, l'espace public disparaît. Car les chances d'accès à la communication publique, les flux d'opinions, sont insaisisables. Les flux d'opinions des massmédias sont contrôlés à leur insu. Habermas a revu son édition en 92 de l'espace public. Longue préface où il intègre les critiques.
+
+**Critiques**  
+- idéalisation d'un âge d'or de l'espace public: surestime l'intensité de la participation politique au sein de l'espace bourgeois, et leur rationnalité. Travaux d'historien venant remettre en question cette vision enchantée.
+- la mise en cause de ses biais de comparaison entre le monde d'émergence de l'espace public et la séquence d'une dégénéresence de l'espace public. Craig CALHOUN: "Habermas tend à juger le 18ème à l'aune de Kant et Locke, le 20ème via le téléespectateur moyen de banlieue". rhétorique de contraste entre ces différentes périodes
+- la manière dont il traite le rapport populaire au politique. Il n'en parle pas. Tend à verser dans le biais légitimiste. Travaux d'historien THOMSON: la formation de la classe ouvrière anglaise. Roger CHARTIER: l'hypothèse d'un E.P populaire qui se constitue à la même période pourrait être recevable.
