@@ -1,4 +1,4 @@
-# Interlettre
+# interlettre
 
 - Des images, Unes, notifs à rapprocher, qui se parlent.
 - l'Actualité est un mythe pour dissimuler l'irrésumable quotidien en quelques items.
